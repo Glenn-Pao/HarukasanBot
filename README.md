@@ -194,4 +194,98 @@ cake
 ![stamp72](https://cloud.githubusercontent.com/assets/8453488/22091487/f33148a4-de31-11e6-9f0c-f3d78ee4def4.png)
 
 yikes
-![stamp73](https://cloud.githubusercontent.com/assets/8453488/22091489/f33c0ad2-de31-11e6-8531-5d8ff394442b.png)
+![stamp73](https://cloud.githubusercontent.com/assets/8453488/22091489/f33c0ad2-de31-11e6-8531-5d8ff394442b.png) bully
+![bully](https://cloud.githubusercontent.com/assets/8453488/22091385/f04bd262-de31-11e6-9c3e-d0343dd5d7bf.png)
+
+stare
+![stare](https://cloud.githubusercontent.com/assets/8453488/22091354/ef744252-de31-11e6-9f32-09f85e9b566e.png)
+
+
+Granblue Fantasy Fanart and Memes
+
+fade1
+![fade1](https://cloud.githubusercontent.com/assets/8453488/22091390/f078076a-de31-11e6-9bc6-74789c3d8879.png) fade2
+![fade2](https://cloud.githubusercontent.com/assets/8453488/22091391/f07897d4-de31-11e6-9bd6-82e49a0cd7a7.png)
+
+centrum2
+![centrum](https://cloud.githubusercontent.com/assets/8453488/22091387/f057ed54-de31-11e6-853a-80813a7ae832.png) claris
+![claris](https://cloud.githubusercontent.com/assets/8453488/22091388/f05a529c-de31-11e6-830e-fa7149fa9069.png)
+
+starlegend
+![starlegend](https://cloud.githubusercontent.com/assets/8453488/22091355/ef75b1a0-de31-11e6-84f2-e2b1ffdd13d3.png) suptix
+![suptixwhen](https://cloud.githubusercontent.com/assets/8453488/22091356/ef77832c-de31-11e6-9ecc-e7ac6fa80a16.png)
+
+gacha
+![gacha](https://cloud.githubusercontent.com/assets/8453488/22091395/f08e04ca-de31-11e6-925b-570a36dddda2.png) gacha2
+![gacha2](https://cloud.githubusercontent.com/assets/8453488/22091397/f0a5a062-de31-11e6-8b71-fd187e50fa15.png)
+
+heh
+![heh](https://cloud.githubusercontent.com/assets/8453488/22091398/f0a6d612-de31-11e6-96f8-4b93ce1d9934.png) windmeme
+![windmeme](https://cloud.githubusercontent.com/assets/8453488/22091362/efa6abca-de31-11e6-89fc-fad9f14b6052.png)
+
+pits
+![pits1](https://cloud.githubusercontent.com/assets/8453488/22091410/f0fbebde-de31-11e6-97f2-5300510f42f6.png) pits2
+![pits2](https://cloud.githubusercontent.com/assets/8453488/22091409/f0fa8a78-de31-11e6-87fb-64fa68ed6687.png)
+
+pits3
+![pits3](https://cloud.githubusercontent.com/assets/8453488/22091411/f0fefcfc-de31-11e6-8971-d321f15023a0.png) rawr
+![rawr](https://cloud.githubusercontent.com/assets/8453488/22091413/f10cf6f4-de31-11e6-85d5-11855f710068.png)
+
+salt
+![salt](https://cloud.githubusercontent.com/assets/8453488/22091412/f108e582-de31-11e6-82b5-b35a9f3b975c.png) nani
+![nani](https://cloud.githubusercontent.com/assets/8453488/22091405/f0d3648e-de31-11e6-819e-b5d674bfe95c.png)
+
+JoJo's Bizarre Adventures Memes
+
+itwasme
+![itwasme](https://cloud.githubusercontent.com/assets/8453488/22091401/f0ba6128-de31-11e6-9091-edaabf5320bb.png) win10
+![win10](https://cloud.githubusercontent.com/assets/8453488/22091361/ef9e009c-de31-11e6-9ab1-f945fde4b2d5.png)
+
+wry2
+![wry2](https://cloud.githubusercontent.com/assets/8453488/22091364/efa97756-de31-11e6-86ef-d8c48a7fb37a.png) flex
+![flex](https://cloud.githubusercontent.com/assets/8453488/22091394/f084f948-de31-11e6-88a2-b83df68cb23a.png)
+
+fab
+![fabulous](https://cloud.githubusercontent.com/assets/8453488/22091392/f0796e02-de31-11e6-8405-d78163115b5b.png) ohmygod
+![ohmygod](https://cloud.githubusercontent.com/assets/8453488/22091406/f0de5dda-de31-11e6-99da-615c9c76c296.png)
+
+oh no
+![ohno](https://cloud.githubusercontent.com/assets/8453488/22091407/f0debafa-de31-11e6-97fd-5d384b2f7e5f.png) pero
+![pero](https://cloud.githubusercontent.com/assets/8453488/22091408/f0e8aa42-de31-11e6-9e5b-e15128e21f60.png)
+
+holyshit
+![holyshit](https://cloud.githubusercontent.com/assets/8453488/22091400/f0b2d26e-de31-11e6-89d1-f92310bdbbdc.png) shit
+![shit](https://cloud.githubusercontent.com/assets/8453488/22091414/f11ad724-de31-11e6-8f46-cb73ffea7a0d.png)
+
+konopowa
+![konopowa](https://cloud.githubusercontent.com/assets/8453488/22091404/f0d17322-de31-11e6-933d-86fdf911d4a3.png) dva
+![dva](https://cloud.githubusercontent.com/assets/8453488/22091389/f060030e-de31-11e6-8fdd-a263b5f1038b.png)
+
+sombra
+![sombra](https://cloud.githubusercontent.com/assets/8453488/22091415/f126a996-de31-11e6-8d40-b37d14e6f706.png) lucio
+![lucio](https://cloud.githubusercontent.com/assets/8453488/22091403/f0d1234a-de31-11e6-857a-8ab3edeb1cf3.png)
+
+blame
+![fault](https://cloud.githubusercontent.com/assets/8453488/22091393/f083d392-de31-11e6-99fc-5eccefd4f4b4.png) stand
+![stand](https://cloud.githubusercontent.com/assets/8453488/22091353/ef71ec5a-de31-11e6-87bb-444d48d46e79.png)
+
+
+Other Memes (Uncategorized)
+
+thonkang
+![thonkang](https://cloud.githubusercontent.com/assets/8453488/22091357/ef79704c-de31-11e6-9768-6366eaf64c3e.png) trap
+![trap](https://cloud.githubusercontent.com/assets/8453488/22091358/ef7d1f44-de31-11e6-8b39-576f241f01da.png)
+
+tuturu
+![tuturu](https://cloud.githubusercontent.com/assets/8453488/22091359/ef9c8820-de31-11e6-9511-00c59e24f2f0.png) waiting
+![waiting](https://cloud.githubusercontent.com/assets/8453488/22091360/ef9c8b0e-de31-11e6-972b-f3af6cc4c288.png)
+
+wry
+![wry](https://cloud.githubusercontent.com/assets/8453488/22091363/efa7a39a-de31-11e6-84f2-8de28a9b7bfb.png) sthap
+![yamero](https://cloud.githubusercontent.com/assets/8453488/22091367/efc6d4ea-de31-11e6-9c41-e6bb7147ea9a.png)
+
+hmm
+![hmm](https://cloud.githubusercontent.com/assets/8453488/22091396/f0a3a6ae-de31-11e6-9e6c-640c01f0a22b.png) hue
+![hue](https://cloud.githubusercontent.com/assets/8453488/22091399/f0b11a6e-de31-11e6-8c02-477f32732d4f.png)
+
+
