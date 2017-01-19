@@ -203,24 +203,30 @@ stare
 
 Granblue Fantasy Fanart and Memes
 
+heh
+![heh](https://cloud.githubusercontent.com/assets/8453488/22091398/f0a6d612-de31-11e6-96f8-4b93ce1d9934.png)claris
+![claris](https://cloud.githubusercontent.com/assets/8453488/22091388/f05a529c-de31-11e6-830e-fa7149fa9069.png)
+
 fade1
-![fade1](https://cloud.githubusercontent.com/assets/8453488/22091390/f078076a-de31-11e6-9bc6-74789c3d8879.png) fade2
+![fade1](https://cloud.githubusercontent.com/assets/8453488/22091390/f078076a-de31-11e6-9bc6-74789c3d8879.png) 
+
+fade2
 ![fade2](https://cloud.githubusercontent.com/assets/8453488/22091391/f07897d4-de31-11e6-9bd6-82e49a0cd7a7.png)
 
 centrum2
-![centrum](https://cloud.githubusercontent.com/assets/8453488/22091387/f057ed54-de31-11e6-853a-80813a7ae832.png) claris
-![claris](https://cloud.githubusercontent.com/assets/8453488/22091388/f05a529c-de31-11e6-830e-fa7149fa9069.png)
+![centrum](https://cloud.githubusercontent.com/assets/8453488/22091387/f057ed54-de31-11e6-853a-80813a7ae832.png) 
 
 starlegend
-![starlegend](https://cloud.githubusercontent.com/assets/8453488/22091355/ef75b1a0-de31-11e6-84f2-e2b1ffdd13d3.png) suptix
+![starlegend](https://cloud.githubusercontent.com/assets/8453488/22091355/ef75b1a0-de31-11e6-84f2-e2b1ffdd13d3.png) 
+
+suptix
 ![suptixwhen](https://cloud.githubusercontent.com/assets/8453488/22091356/ef77832c-de31-11e6-9ecc-e7ac6fa80a16.png)
 
 gacha
 ![gacha](https://cloud.githubusercontent.com/assets/8453488/22091395/f08e04ca-de31-11e6-925b-570a36dddda2.png) gacha2
 ![gacha2](https://cloud.githubusercontent.com/assets/8453488/22091397/f0a5a062-de31-11e6-8b71-fd187e50fa15.png)
 
-heh
-![heh](https://cloud.githubusercontent.com/assets/8453488/22091398/f0a6d612-de31-11e6-96f8-4b93ce1d9934.png) windmeme
+ windmeme
 ![windmeme](https://cloud.githubusercontent.com/assets/8453488/22091362/efa6abca-de31-11e6-89fc-fad9f14b6052.png)
 
 pits
@@ -238,35 +244,51 @@ salt
 JoJo's Bizarre Adventures Memes
 
 itwasme
-![itwasme](https://cloud.githubusercontent.com/assets/8453488/22091401/f0ba6128-de31-11e6-9091-edaabf5320bb.png) win10
+![itwasme](https://cloud.githubusercontent.com/assets/8453488/22091401/f0ba6128-de31-11e6-9091-edaabf5320bb.png) 
+
+win10
 ![win10](https://cloud.githubusercontent.com/assets/8453488/22091361/ef9e009c-de31-11e6-9ab1-f945fde4b2d5.png)
 
 wry2
-![wry2](https://cloud.githubusercontent.com/assets/8453488/22091364/efa97756-de31-11e6-86ef-d8c48a7fb37a.png) flex
+![wry2](https://cloud.githubusercontent.com/assets/8453488/22091364/efa97756-de31-11e6-86ef-d8c48a7fb37a.png) 
+
+flex
 ![flex](https://cloud.githubusercontent.com/assets/8453488/22091394/f084f948-de31-11e6-88a2-b83df68cb23a.png)
 
 fab
-![fabulous](https://cloud.githubusercontent.com/assets/8453488/22091392/f0796e02-de31-11e6-8405-d78163115b5b.png) ohmygod
+![fabulous](https://cloud.githubusercontent.com/assets/8453488/22091392/f0796e02-de31-11e6-8405-d78163115b5b.png) 
+
+ohmygod
 ![ohmygod](https://cloud.githubusercontent.com/assets/8453488/22091406/f0de5dda-de31-11e6-99da-615c9c76c296.png)
 
 oh no
-![ohno](https://cloud.githubusercontent.com/assets/8453488/22091407/f0debafa-de31-11e6-97fd-5d384b2f7e5f.png) pero
+![ohno](https://cloud.githubusercontent.com/assets/8453488/22091407/f0debafa-de31-11e6-97fd-5d384b2f7e5f.png) 
+
+pero
 ![pero](https://cloud.githubusercontent.com/assets/8453488/22091408/f0e8aa42-de31-11e6-9e5b-e15128e21f60.png)
 
 holyshit
-![holyshit](https://cloud.githubusercontent.com/assets/8453488/22091400/f0b2d26e-de31-11e6-89d1-f92310bdbbdc.png) shit
+![holyshit](https://cloud.githubusercontent.com/assets/8453488/22091400/f0b2d26e-de31-11e6-89d1-f92310bdbbdc.png) 
+
+shit
 ![shit](https://cloud.githubusercontent.com/assets/8453488/22091414/f11ad724-de31-11e6-8f46-cb73ffea7a0d.png)
 
 konopowa
-![konopowa](https://cloud.githubusercontent.com/assets/8453488/22091404/f0d17322-de31-11e6-933d-86fdf911d4a3.png) dva
+![konopowa](https://cloud.githubusercontent.com/assets/8453488/22091404/f0d17322-de31-11e6-933d-86fdf911d4a3.png) 
+
+dva
 ![dva](https://cloud.githubusercontent.com/assets/8453488/22091389/f060030e-de31-11e6-8fdd-a263b5f1038b.png)
 
 sombra
-![sombra](https://cloud.githubusercontent.com/assets/8453488/22091415/f126a996-de31-11e6-8d40-b37d14e6f706.png) lucio
+![sombra](https://cloud.githubusercontent.com/assets/8453488/22091415/f126a996-de31-11e6-8d40-b37d14e6f706.png) 
+
+lucio
 ![lucio](https://cloud.githubusercontent.com/assets/8453488/22091403/f0d1234a-de31-11e6-857a-8ab3edeb1cf3.png)
 
 blame
-![fault](https://cloud.githubusercontent.com/assets/8453488/22091393/f083d392-de31-11e6-99fc-5eccefd4f4b4.png) stand
+![fault](https://cloud.githubusercontent.com/assets/8453488/22091393/f083d392-de31-11e6-99fc-5eccefd4f4b4.png) 
+
+stand
 ![stand](https://cloud.githubusercontent.com/assets/8453488/22091353/ef71ec5a-de31-11e6-87bb-444d48d46e79.png)
 
 
